@@ -32,7 +32,7 @@ The first ever Tweet contact was Toko congratulating Suisei for entering INNK, h
 
 ### 2019-05-21
 
-Toko reached 60k subscribers and Suisei congratuated her on this.
+Toko reached 60k subscribers and Suisei congratulated her on this.
 
 They "kissed" a lot.
 
@@ -77,7 +77,7 @@ Toko replied and they again "kissed" a lot.
 
 Suisei reached 11,111 YouTube Channel sub, Toko congratulated her.
 
-They also mentioned they want to sing together on live stage one day.
+They also mentioned they wanted to sing together on live stage one day.
 
 They realised their dream on Dec 10th, 2020 [<i class="fa-solid fa-music" /> Inui Toko 1st solo live "who i am"](https://event.nijisanji.app/inui_whoiam/).
 
@@ -172,7 +172,7 @@ According to Suisei's YouTube after talk stream (privated), Suisei watched the w
 
 Full event name [hololive 1st fes. ノンストップ・ストーリー](https://www.nonstop.hololive.tv/)
 
-This was the major turning point for Suisei.
+This was a major turning point for Suisei.
 
 Her original plan was to sing [<i class="fa-solid fa-meteor" /> *Comet*](https://www.youtube.com/watch?v=3cqV5BKJHyk) there. But after seeing Toko's live performance, she changed her mind and went for more *impact*, thus the song she chose to sing on stage was [<i class="fa-solid fa-meteor" /> *Tenkyuu, Suisei wa Yoru wo Mataide*](https://www.youtube.com/watch?v=zLak0dxBKpM). The song and her performance was so impressive that her name was on Twitter Trend for a pretty long time.
 
@@ -218,7 +218,7 @@ Toko: *Oh wait don't go, I still got something about EnSta to tell you!*
 Suisei: *Tell me more on LINE!*
 :::
 
-Really close friends right?
+Really close friends, right?
 
 ## Summary of 2019
 
